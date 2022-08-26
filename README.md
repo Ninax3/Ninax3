@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ninax3
-- 👀 I’m interested in Data, Yoga, Spirituality, Plants, Poltics and the Environment.
+- 👀 I’m interested in Data, Yoga, Spirituality, Plants, Politics, World Affairs and the Environment.
 - 🌱 I’m currently learning everyday.
 - 💞️ I’m looking to collaborate on projects related to my job/work/hobbies/ideas. 
 - 📫 How to reach me email: pelicanslandingobx@gmail.com
